@@ -17,5 +17,4 @@
 
 6월
 -----
-![image](https://github.com/user-attachments/assets/92ec16b0-d275-4fad-ab4f-6f53d260b78f)
-
+![image](https://github.com/user-attachments/assets/27be03f6-e1a7-4549-a595-fbaaab9e2601)
