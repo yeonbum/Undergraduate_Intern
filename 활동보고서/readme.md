@@ -18,3 +18,13 @@
 6월
 -----
 ![image](https://github.com/user-attachments/assets/27be03f6-e1a7-4549-a595-fbaaab9e2601)
+
+
+7월
+-----
+<img width="730" height="962" alt="image" src="https://github.com/user-attachments/assets/72ed62b0-0280-4757-b681-a6502b59a78d" />
+
+
+8월
+-----
+<img width="723" height="988" alt="image" src="https://github.com/user-attachments/assets/440ce676-17a0-4434-a8b0-bf64a842fa36" />
